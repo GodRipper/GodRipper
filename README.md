@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GodRipper
+- 👀 I’m interested in Solving your queries
+- 🌱 I’m currently learning coding languages
+- 💞️ I’m looking to collaborate on python projects mainly
+- 📫 Reach Me ----(godripper2000@gmail.com)
